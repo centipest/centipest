@@ -1,4 +1,4 @@
-i dont add people often, high paranoia almost always.
+i dont add people often, high paranoia almost always.<br/>i hide loosely!
 
 just because i talk to someone doesnt mean i condone or support<br/>their actions in any way, i am my own person. so pls dont drag<br/>me into any conflict. <3
 
